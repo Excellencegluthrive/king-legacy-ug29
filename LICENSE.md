@@ -1,4 +1,4 @@
-
+Get ahead in king legacy with elite king legacy Scripts, featuring god mode and custom skins. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
